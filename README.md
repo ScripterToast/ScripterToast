@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ScripterToast
 - 👀 I’m interested in coding
-- 📫 How to reach me Discord: ___toast___#0889
+- 📫 How to reach me Discord: ______toast______#0889
